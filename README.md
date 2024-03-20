@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **danibrada29@gmail.com**
 
-- 📫 Check my portfolio **(https://portfolop-daniel.web.app/)**
+- 📫 Check my portfolio **https://portfolop-daniel.web.app/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
